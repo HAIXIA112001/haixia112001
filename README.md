@@ -71,7 +71,7 @@ oTransitioned the company from process-driven to data-driven operations.
 
 2023: Outstanding Employee, Wuhan Sanjiang Aerospace Network Communication Co., Ltd.
 
-2023 & 2024: Group-Level "Outstanding Individual" for exceptional contributions to organizational projects.
+2023 & 2024: Group-Level "Exemplary Individual" and “Achievement” for exceptional contributions to organizational projects.
 
 ## Core Skills
 
